@@ -1,1 +1,1 @@
-# Saude-e-seguranca-no-trabalho
+# Saúde e segurança no trabalho
